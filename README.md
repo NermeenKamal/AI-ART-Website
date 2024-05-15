@@ -1,4 +1,3 @@
-![Uploading Screenshot 2024-05-15 232844.png…]()
 
 ---
 
